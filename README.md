@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @1byinf8
-- 👀 I’m interested in computers..very percisely. on coding
-- 🌱 I’m currently learning full stack web development
-- 💞️ I’m looking to collaborate on any startup working on web development
+- 👋 Hi, I’m Satwik Kashyap
+- 👀 I’m interested in basically nothing
+- 🌱 I’m currently sleeping
+- 💞️ I’m looking to collaborate on any eating event
 - 📫 How to reach me kashyapsatwik29@gmail.com
 - (or) dm me at 1byinf8(instaid)
 

@@ -1,14 +1,14 @@
 # Hey there! I'm Satwik Kashyap
 
-👋 **Who am I?**  
-Just your everyday explorer who claims to be into nothing, but somehow gets hooked on *everything* interesting.
+👋 **Passions?**  
+I say I'm into nothing, but somehow, everything grabs my attention when it counts!
 
-🌱 **What am I up to?**  
+🌱 **Current status?**  
 Currently mastering the fine art of sleeping—because because even innovators need downtime. 😴
 
-💞️ **Collab Goals?**  
-Food + Ideas = Innovation. Hit me up for an eating event that doubles as a brainstorming session! 🍕✨
+💞️ **Collab?**  
+I'm always down for brainstorming over snacks, so let's make every eating event a feast of ideas!
 
-📫 **How to reach me:**  
+📫 **Reach out:**  
 - **Email:** kashyapsatwik29@gmail.com  
 - **Instagram:** [@1byinf8](https://www.instagram.com/1byinf8) (Slide into my DMs—let's make it interesting!)

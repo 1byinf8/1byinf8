@@ -1,11 +1,14 @@
-- 👋 Hi, I’m Satwik Kashyap
-- 👀 I’m interested in basically nothing
-- 🌱 I’m currently sleeping
-- 💞️ I’m looking to collaborate on any eating event
-- 📫 How to reach me kashyapsatwik29@gmail.com
-- (or) dm me at 1byinf8(instaid)
+# Hey there! I'm Satwik Kashyap
 
-<!---
-1byinf8/1byinf8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+👋 **Who am I?**  
+Just your everyday explorer who claims to be into nothing, but somehow gets hooked on *everything* interesting.
+
+🌱 **What am I up to?**  
+Currently mastering the fine art of sleeping—because because even innovators need downtime. 😴
+
+💞️ **Collab Goals?**  
+Food + Ideas = Innovation. Hit me up for an eating event that doubles as a brainstorming session! 🍕✨
+
+📫 **How to reach me:**  
+- **Email:** kashyapsatwik29@gmail.com  
+- **Instagram:** [@1byinf8](https://www.instagram.com/1byinf8) (Slide into my DMs—let's make it interesting!)
